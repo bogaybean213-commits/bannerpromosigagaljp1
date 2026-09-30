@@ -1,0 +1,1 @@
+# bannerpromosigagaljp1
